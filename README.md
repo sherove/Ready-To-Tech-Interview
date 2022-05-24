@@ -1,1 +1,1 @@
-# Ready-To-Tech-Interview
+# Ready-To-Tech-Spec👒
